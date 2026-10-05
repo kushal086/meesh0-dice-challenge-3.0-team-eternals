@@ -1,1 +1,1 @@
-# meesh0-dice-challenge-3.0-team-eternals
+# meesho-D.I.C.E-challenge-3.0-team-eternals
